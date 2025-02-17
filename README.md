@@ -1,4 +1,4 @@
-# Cal's Silly Clicker Game!
+# [REDACTED]'s Silly Clicker Game!
 made this over a few days :3
 
 
